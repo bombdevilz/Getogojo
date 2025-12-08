@@ -2,4 +2,3 @@
 me     ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀                                  my bf
 
 
-<img width="250" height="250" alt="image" src="https://pretty-scarlet-wlsxn8iywf-pwnmitkbkq.edgeone.dev/IMG_2354.png" />  us
