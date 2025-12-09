@@ -2,3 +2,4 @@
 me     ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀                                  my bf
 
 
+<img width="500" height="500" alt="image" src="https://cdn.discordapp.com/attachments/1269666735389413386/1447836583439896778/IMG_4293.jpg?ex=69391264&is=6937c0e4&hm=eaf6ebfc9744e77b921225380c97dbb4cf5794b3050fa4590ff20005bcdfeff8&" />
